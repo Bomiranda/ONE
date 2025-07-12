@@ -82,5 +82,5 @@ A evasão de clientes impacta diretamente na receita e no crescimento sustentáv
 
 ## 📬 Autor
 
-Rodrigo Corsini Lueneberg
+Fernando Miranda de Lima
 
